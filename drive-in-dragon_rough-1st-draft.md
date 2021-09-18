@@ -1,5 +1,5 @@
 drive-in-dragon_rough-1st-draft.md
-Last modified: Fri Sep 17, 2021  01:29AM
+Last modified: Sat Sep 18, 2021  08:40PM
 
 
 First, I need you to understand that what I'm going to tell you about here might seem unbelievable, but it really happened to me. I say 'unbelievable' but I don't mean unbelievable like those old *Penthouse Forum Letters* where some wildly unlikely sex act supposedly actually happened. I haven't told anyone about this before not because of prudish shyness (trust me, I am not a prude) or because I was afraid I wouldn't be believed, but rather because I was afraid they might think I had gone insane.
@@ -42,9 +42,97 @@ I kinda couldn't take my eyes off him. Really, he dressed just like all the othe
 
 He was trying to keep his eyes on the road, but he caught me staring at him. He gave me half a side-ways grin, and I leaned over and put my head on his shoulder. I had a smile on my face that I had no control over. I just kept grinning. I smiled as I sucked his ear. And I continued to smile as I undid his pants and slid my warm little hand down his underwear and took his cock in my hand. He was hard. Extremely hard. In that way that only 19 year old boys could be really. So hard that is gave not at all to the pressure of my fingers. It wasn't throbbing hard, it was just *hard* --- like a wooden dowel or something. There really wasn't anything I could even do with it. So I just held him in my hand while I whispered in his ear that he had better continue to concentrate on driving.
 
-Somehow we made it to the drive-in without being killed. Lucas pulled my hand out and zipped himself up just as we pulled up to the booth. I could tell he was embarrassed by the hard on he was failing to hide while he paid for the movie. I was not embarrassed at all by the fact that my panties were already soaking wet.
+Somehow we made it to the drive-in without being killed. Lucas pulled my hand out and zipped himself up just as we pulled up to the booth. I could tell he was embarrassed by the hard on he was failing to hide while he paid the rural teenage blonde girl in the booth for the movie. I was not embarrassed at all by the fact that my panties were already soaking wet.
 
-I had worn something I knew he would like: a flowy black skirt that came down to just below my knees and a tight black halter top that made the most of the warm evenings of late summer, and my small breasts. I had put lipstick on before we left in a high-contrast red color that I remember loving in those younger years of mine.
+I had worn something I knew he would like: a flowy black skirt that came down to just below my knees, a tight black halter top that made the most of the warm evenings of late summer and my small breasts. I had put lipstick on before we left --- a high-contrast red color that I loved in those younger years.
 
+The opening credits of *Mulan* were already rolling when Lucas steered my car into a space towards the back. I had his cock out again before he even put the gearshift into park. His cock was warm and hard in my hand. I stared across at him, smiling happily while I stroked him slowly. He let out a long sigh of satisfaction with his eyes closed, and then opened them to look over at me. I didn't break eye contact while I lowered my lips to his cock. This was a bit of a trick, because I had to look up at him sideways. He slid the car seat back so I had more room.
+
+Now, I'm not one to brag, but I will tell you honestly that I give the very best head. I've been told it's because of my full lips, but I think it's because I know what boys like: sloppy, wet, and no teeth! The way I figure it is that I _know_ boys like the sensation of pussy on their cock, so I just make my mouth as much like a pussy as possible --- and then add a little suction as bonus.
+
+In this case I was already so turned on that I couldn't wait to get his cock in my mouth. As soon as I had my head down there in his lap, I did close my eyes and break eye contact with him. I wanted to focus on his cock, and the whole eye-contact thing was just a gimmick to tease him with anyway.
+
+As for Lucas' cock: I loved that thing. He wasn't huge, and he wasn't small. He was very appropriately proportioned! It had a nice gentle curve to it, --- which felt great in my pussy when he fucked me, and a full round tip that was also nicely proportioned in relation to the length and circumference of the shaft. And so hard. _Always_ hard. In the time I knew him --- admittedly, not really that long --- I'm fairly certain I never saw his cock when it wasn't hard. I'm serious! I don't know if that was a problem he had, or if I just did that to him. I prefer to believe the latter, of course.
+
+Anyway, on this evening at the drive-in I licked my lips and touched them to the tip of his cock. I parted them slightly, and let my wet mouth slide over that well-proportioned tip. I just _love_ that sensation --- the spreading around the bulb of his cock before coming slightly back together at the shaft. Somehow that tiny movement is just so incredibly hot! That little moment made my pussy even wetter.
+
+"Oh my god!" Lucas said, "Kendra, there is nothing like the way you suck my cock!" (He actually said this --- see? Told you I'm the best!)
+
+Hearing him say this made me hungry to experience more of his cock, so I plunged my head down while letting out a long stifled groan --- stifled, of course, because my mouth was stuffed with his delicious dick.
+
+I sucked away at him happily for a few minutes, but I could already taste his cum on my tongue. I knew he wasn't going to last if I kept giving him my world-class treatment. I lifted my head up, and taking his cock in my hand again stroked him slowly while I looked at him and caught my breath. "I want you in my pussy." I told him with unnecessary honesty.
+
+I had to get my panties off. (I know --- you think I should have let him rip them off me. But I had worn my favorite pair for him! Purple, cute, and delicate lacey thongs. They were also fucking expensive! I wasn't about to let him ruin them.) I put my feet up on the dash, lifted my ass, hiked up my flowy black skirt and slipped my panties down my legs and over my toes. I stashed them in my handbag in the footwell. Lucas watched this whole operation while slowly stroking his cock. I felt like I was putting on a little show for him, even though all I wanted was my favorite panties safely out of the way.
+
+I held my skirt up as I straddled him. His hands slid up my thighs, and I held his cock in my hand, guiding it towards my soaking, desperate pussy as I let my skirt slip back down over my legs and his hands.
+
+The head of his cock touched my pussy, and again that sensation of widening --- his cock spreading my pussy apart so it could come back together around the shaft --- made me so hot. I couldn't be slow about this anymore. I plunged my hips down on him, and felt his cock sliding up into me. It felt lovely.
+
+As good as it felt, I wasn't going to cum just from having his cock inside me. And one of the things I loved about Lucas is he knew that instinctively. His hands slid up to the top of my hips. I could feel his fingers grasping me on both sides under my skirt. He thrust himself upwards at the same time that he pulled me downwards. I gasped as his cock pushed ever further into me, but this got me down where I wanted to be --- with his whole cock inside me.
+
+And now I could also feel the hard muscles of his abdomen pressing against my clit. I began to move. A long, slow grinding movement of my hips. I rolled with a slow rhythm back and forth, making his cock fuck my pussy and at the same time rubbing my clit gently against him.
+
+One of the things I love about this move is it is the way to make the most of horny and lazy young boys. As long as you can keep them hard without cumming, they don't have to do anything but hold their cock inside you. Hell, when they try to move it just breaks my concentration and rhythm. I just need them to be an unrelenting cock-pole for me to fuck. It gives me the most intense orgasm.
+
+The drawback is that usually these boys can't handle it, and they cum.
+
+Lucas did his best. He reached his arms around me and held both sides of the steering wheel in a white-knuckle grip. He had his eyes closed and his head back --- I could almost see him trying to think about anything else to keep himself from cumming. Probably baseball, since that's likely the least-sexy thing for an art-nerd boy like Lucas.
+
+I totally had him in my clutches then. I could have made him cum in a second if I wanted to. But I didn't I broke my rhythm just enough that he came around and got control of himself. Now, with slightly less risk of his early orgasm ruining everything, we could get down to some serious fucking. I took his face in my hands and kissed him slowly with a long wet kiss.
+
+His hands let go of the steering wheel and made their way back up under my skirt. I could feel his fingers slip under the lower curve of my ass, and apply the white-knuckle grip there instead. I have to tell you: I just fucking love it when a man does that. _Whenever_ a guy does that, I get turned on --- even if it's in public and just for a second --- but when I'm in the middle of getting fucked, it makes me want to get my cunt pounded!
+
+I leaned back a bit, and slid my hands up under his tshirt, lifting it up and feeling his chest under my fingers at the same time. I lifted my halter top, and pressed my small brown breasts against the naked skin of his chest. (I hadn't bothered with a bra of course.) 
+
+I rubbed my body against his as I continued my rolling-hip fucking, his cock thrusting into me with each grind, his body sliding back and forth against my clit. He kept his hands under my ass, as if he were helping with the motion, but in reality, I was doing all the work.
+
+I put my head on his shoulder and had a sweeping long orgasm. I could feel my pussy clenching on his cock and soaking it as I shook against him. It was one of those massive, quaking orgasms that goes on for what feels like 20 minutes, though I'm sure in reality it's just a minute or so. A full minute of shaking, unstoppable pleasure! Boys have no idea what a serious orgasm is like.
+
+OK, you say. None of this is so shocking or unbelievable! What's the big deal? I'm coming right up to that.
+
+As I ground out the last of my orgasm against him, his cock was still hard up inside me with an unwavering stiffness. I thought about what to do next with him, and how I would lead him to his own orgasm. Up on the screen, *Mulan* rolled on contributing nothing the entertainment in my car except a warm cartoon-colored glow.
+
+"I want you to fuck me from behind." I whispered in his ear as I slipped his soaked rod out of myself. I got on my knees in the passenger seat and released the back to fold it down as flat as it would go. My legs were still shaking from my orgasm. I pulled my skirt up and looked back at him. 
+
+Lucas was admiring my perfect little ass (it was _perfect_ at that time I tell you!) and my sopping pussy. He didn't even see me looking at him. He put his cock in me, and my eyes closed and I drooped my head as a long exhale of pleasure left me. I don't know about you, but I _love_ getting fucked from behind. It's harder for me to cum that way, but I love the sensation of being on my knees and the long thrust of a nice hard dick into me. It has an eternal quality to it that other positions just don't deliver.
+
+
+From all the phone sex we had had, Lucas knew the explicit details of exactly what I liked, and he put all of that fine-grained knowledge to use now. He fucked me with long slow strokes, and then would shift gears and pound into me until he was breathing heavily and I could feel little drops of his sweat hitting my naked ass. He held my hips in his hands and drove into me. I held on to the car seat for dear life. I was really close to the edge of what my muscles could do --- I'm just a small girl you know!
+
+It was when he was fucking me from behind like this that this thing I wanted to tell you about happened. As I said I was holding on with my eyes closed. So I didn't _see_ anything at first. Rather, I _felt_ it. The first thing I noticed was a change in how his cock felt in my pussy. I said before, Lucas' cock was _well-prorportioned_ --- and by that I don't mean big. Just "a good size." But at this moment when he was fucking me from behind, I suddenly had the sensation that his cock was growing larger. Not like just a little throb (as I said, his cock didn't really throb, it just _was_ at maximum hardness all the time) but it actually seemed to _grow_. It swelled in my pussy, in both length and girth, and it just got bigger and bigger. It felt like it was going to split me apart! I was _acually_ afraid he might hurt me. What if a man is so big it does permanent damage? Can such a thing happen? I wasn't sure, but these kinds of questions sort of started floating abstractly through my mind.
+
+
+And it wasn't just getting bigger, it was getting _harder_ too. I know I said that couldn't happen, but I don't mean _stiffer_ I mean harder --- like his cock was becoming a solid object, rather than a meaty piece of flesh (no matter how tumescent).
+
+I also suddenly felt like my car was bearing a much greater weight. I could swear the shocks had fully compressed on one side. And Lucas was breathing much more slowly and deeply, with a long hot breath that blew like a desert wind over my back. It was hard enough that it stirred my hair!
+
+And now I knew I had to open my eyes. I looked over and Lucas' hand was gripping the edge of the driver's seat. Only it wasn't his hand, it was a great claw that I could swear (at least by the orangish-blue cartoon light coming through the windshield) was made of stone. The claw was as big as my head with long nails that were digging into the upholstery of my car seat and slowly ripping chunks of foam from it.
+
+The claw was the end of a sinewy, hard arm that stretched back behind me that angled through a pointed and pinioned elbow.
+
+Terrified by what I might see, my eyes followed the arm back to look behind me, and I tell you now with all the truth I can put into these words: Lucas had turned into a dragon. Or some kind of monster, what do I know about these things?
+
+He was huge. His form filled the whole front of the car in a way that seemed impossible. And the car was clearly struggling under the weight of this beast. It had a belly of overlapped stone scales, like asphalt roofing shingles, but with a curve to them. The arms were heavily muscled, leveraged with power for tearing with those claws. The head was massive and held above me on a long neck that was curved in a serpentine S so the big head could fit into the small space of my tiny car. The teeth were entirely rows of long T-rex incisors. (This was a creature that didn't chew his food --- he ripped it.) Horns sprouted in an unpleasant mass from his head and down his back. I could swear they were nothing but those giant teeth in a reversed direction. His eyes were the most disturbing though: reptile slits but forward pointed to give three-dimensional perception as they are in a predator animal. They gave the uncanny sense that they could see things far beyond the pitiful spectrum allowed to humans.
+
+It did have wings. I know you want to know. They were paper thin and crammed together like folded bat-wings, pressed up against the windshield by the back of the creature that took up more space than could possible actually be in my small coupe.
+
+And then there was the creature's cock. It was inside me. I could
+
+
+
+Another weird thing was I could hear him snapping his teeth. Seriously! Like a dog snapping angrily in the air at someone he hates. And the teeth-snap had a cavernous echo to it as well.
+
+
+
+
+
+
+
+
+
+
+
+
+I never did see *Mulan*.
 
 
