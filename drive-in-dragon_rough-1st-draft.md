@@ -1,5 +1,5 @@
 drive-in-dragon_rough-1st-draft.md
-Last modified: Sat Sep 18, 2021  09:26PM
+Last modified: Sat Sep 18, 2021  10:47PM
 
 
 First, I need you to understand that what I'm going to tell you about here might seem unbelievable, but it really happened to me. I say 'unbelievable' but I don't mean unbelievable like those old *Penthouse Forum Letters* where some wildly unlikely sex act supposedly actually happened. I haven't told anyone about this before not because of prudish shyness (trust me, I am not a prude) or because I was afraid I wouldn't be believed, but rather because I was afraid they might think I had gone insane.
@@ -119,14 +119,14 @@ It did have wings. I know you want to know. They were paper thin and crammed tog
 And then there was the creature's cock. It was inside me. I could
 
 
-* His claw wrapped around my neck. It wasn't like he was choking me, I had no trouble breathing. More like he just found my neck a convenient handle to grab onto. But the sensation was disturbing. Like my neck had been thrust into the hole through a cinder block.
+* Its claw wrapped around my neck. It wasn't like he was choking me, I had no trouble breathing. More like he just found my neck a convenient handle to grab onto. But the sensation was disturbing. Like my neck had been thrust into the hole through a cinder block.
 
-* His other claw came down to my hip and closed hard on it. I could feel the sharp points digging in, and could only imagine his claws doing the same damage to the soft flesh of my thigh that he had done to the foam of the driver's-side seat.
+* Its other claw came down to my hip and closed hard on it. I could feel the sharp points digging in, and could only imagine his claws doing the same damage to the soft flesh of my thigh that he had done to the foam of the driver's-side seat.
 
 * Another weird thing was I could hear him snapping his teeth. Seriously! Like a dog snapping angrily in the air at someone he hates. And the teeth-snap had a cavernous echo to it as well.
 
 
-* I could hear a sound coming from his throat. Something like "Keeeeshennshra." I realized it was my name.
+* I could hear a sound coming from his throat. Something like "Keeeeshennshra." I realized it was my name. A long and curling serpent tongue unfurled from its mouth, and whipped down and licked my pussy. Its touch was so hot it burned me. I was afraid it would leave welts. I couldn't help but let out a scream. "Keeeeshennshra. Your cunt tastes so good!"
 
 * He was over me, and I felt like I was trapped in a collapsed building, or a miner who had belly-crawled into the narrowest void 1000 feet underground. It felt like undescribable massiveness. It felt like being fucked by the Earth itself.
 
