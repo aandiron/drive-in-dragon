@@ -1,5 +1,6 @@
 drive-in-dragon_rough-1st-draft.md
-Last modified: Sat Sep 18, 2021  10:47PM
+Last modified: Sun Sep 19, 2021  04:47PM
+
 
 
 First, I need you to understand that what I'm going to tell you about here might seem unbelievable, but it really happened to me. I say 'unbelievable' but I don't mean unbelievable like those old *Penthouse Forum Letters* where some wildly unlikely sex act supposedly actually happened. I haven't told anyone about this before not because of prudish shyness (trust me, I am not a prude) or because I was afraid I wouldn't be believed, but rather because I was afraid they might think I had gone insane.
@@ -97,41 +98,76 @@ As I ground out the last of my orgasm against him, his cock was still hard up in
 Lucas was admiring my perfect little ass (it was _perfect_ at that time I tell you!) and my sopping pussy. He didn't even see me looking at him. He put his cock in me, and my eyes closed and I drooped my head as a long exhale of pleasure left me. I don't know about you, but I _love_ getting fucked from behind. It's harder for me to cum that way, but I love the sensation of being on my knees and the long thrust of a nice hard dick into me. It has an eternal quality to it that other positions just don't deliver.
 
 
-From all the phone sex we had had, Lucas knew the explicit details of exactly what I liked, and he put all of that fine-grained knowledge to use now. He fucked me with long slow strokes, and then would shift gears and pound into me until he was breathing heavily and I could feel little drops of his sweat hitting my naked ass. He held my hips in his hands and drove into me. I held on to the car seat for dear life. I was really close to the edge of what my muscles could do --- I'm just a small girl you know!
+From all the phone sex we had had, Lucas knew the explicit details of exactly what I liked, and he put all of that fine-grained knowledge to use now. He fucked me with long slow strokes, and then would shift gears and pound into me until he was breathing heavily and I could feel little drops of his sweat hitting my naked ass. He held my hips in his hands and drove into me. I held on to the car seat for dear life. I was really close to the edge of what my muscles could do and at risk of collapsing  --- I'm just a small girl you know!
 
-It was when he was fucking me from behind like this that this thing I wanted to tell you about happened. As I said I was holding on with my eyes closed. So I didn't _see_ anything at first. Rather, I _felt_ it. The first thing I noticed was a change in how his cock felt in my pussy. I said before, Lucas' cock was _well-prorportioned_ --- and by that I don't mean big. Just "a good size." But at this moment when he was fucking me from behind, I suddenly had the sensation that his cock was growing larger. Not like just a little throb (as I said, his cock didn't really throb, it just _was_ at maximum hardness all the time) but it actually seemed to _grow_. It swelled in my pussy, in both length and girth, and it just got bigger and bigger. It felt like it was going to split me apart! I was _acually_ afraid he might hurt me. What if a man is so big it does permanent damage? Can such a thing happen? I wasn't sure, but these kinds of questions sort of started floating abstractly through my mind.
+It was when he was fucking me from behind like this that the thing I wanted to tell you about happened. As I said, I was holding on with my eyes closed. So I didn't _see_ anything at first. Rather, I _felt_ it. The first thing I noticed was a change in how his cock felt inside me. I said before, Lucas' cock was _well-prorportioned_ --- and by that I don't mean big --- just "a good size." But at this moment when he was fucking me from behind, I suddenly had the sensation that his cock was growing larger. Not like just a little throb, but it actually seemed to _grow_. It swelled in my pussy, in both length and girth, and it just got larger and larger. It felt like it was going to split me apart! I was afraid he might actually hurt me. What if a man is so big it does permanent damage? Can such a thing happen? I wasn't sure, but these kinds of questions sort of started floating abstractly through my mind.
 
+His cock wasn't just getting bigger, it was getting _harder_ too. And I don't mean _stiffer_ I mean harder --- like his cock was becoming a solid object, rather than a meaty piece of flesh (no matter how tumescent).
 
-And it wasn't just getting bigger, it was getting _harder_ too. I know I said that couldn't happen, but I don't mean _stiffer_ I mean harder --- like his cock was becoming a solid object, rather than a meaty piece of flesh (no matter how tumescent).
+I also suddenly felt like my car was bearing a much greater weight. I could swear the shocks had fully compressed on one side. And Lucas was breathing much more slowly and deeply, with a long hot breath that blew like a desert wind over my back, with enough force to stir my hair.
 
-I also suddenly felt like my car was bearing a much greater weight. I could swear the shocks had fully compressed on one side. And Lucas was breathing much more slowly and deeply, with a long hot breath that blew like a desert wind over my back. It was hard enough that it stirred my hair!
+I knew I had to open my eyes. I looked over and Lucas' hand was gripping the edge of the driver's seat. Only it wasn't his hand, it was a great claw that I could swear was made of stone (at least that's what it looked to be by the orangish-blue cartoon light coming through the windshield). The claw was as big as my head with long, sharp nails digging into the upholstery of my car seat and slowly ripping chunks of foam from it.
 
-And now I knew I had to open my eyes. I looked over and Lucas' hand was gripping the edge of the driver's seat. Only it wasn't his hand, it was a great claw that I could swear (at least by the orangish-blue cartoon light coming through the windshield) was made of stone. The claw was as big as my head with long nails that were digging into the upholstery of my car seat and slowly ripping chunks of foam from it.
+The claw was the end of a sinewy, hard arm stretching back behind me and turning at a pointed elbow. The surface of the arm was of pebbly and cracked rock, yet formed as if sculpted from stone with the bulging shape of taut muscles. Heavily muscled, I might say. Leveraged with power for tearing with those claws.
 
-The claw was the end of a sinewy, hard arm that stretched back behind me that angled through a pointed and pinioned elbow.
+Terrified by what I might see, my eyes followed the arm back to look behind me, and I tell you now with all the truth I can put into these words: Lucas had turned into a dragon. Or some kind of monster? What do I know about these things?
 
-Terrified by what I might see, my eyes followed the arm back to look behind me, and I tell you now with all the truth I can put into these words: Lucas had turned into a dragon. Or some kind of monster, what do I know about these things?
+He was huge. His form filled the whole front of the car in a way that seemed impossible. And the car was clearly struggling under the weight of this beast. It had a belly of overlapped stone scales like asphalt roofing shingles, but with a curve to them. The head was massive and held above me on a long neck that was compressed into a serpentine S to allow the bulk of the head to fit into the low headroom of my tiny car. The teeth were entirely long rows of long T-rex incisors. (This was a creature that didn't chew his food --- it ripped it.) Horns sprouted in an unpleasant mass from his head and down his back. I could swear they were nothing but those giant teeth in a reversed direction. His eyes were the most disturbing though: reptile slits, forward pointed to give three-dimensional perception as they are in a predator animal. They gave the uncanny sense that they could see things far beyond the pitiful spectrum allowed to humans.
 
-He was huge. His form filled the whole front of the car in a way that seemed impossible. And the car was clearly struggling under the weight of this beast. It had a belly of overlapped stone scales, like asphalt roofing shingles, but with a curve to them. The arms were heavily muscled, leveraged with power for tearing with those claws. The head was massive and held above me on a long neck that was curved in a serpentine S so the big head could fit into the small space of my tiny car. The teeth were entirely rows of long T-rex incisors. (This was a creature that didn't chew his food --- he ripped it.) Horns sprouted in an unpleasant mass from his head and down his back. I could swear they were nothing but those giant teeth in a reversed direction. His eyes were the most disturbing though: reptile slits but forward pointed to give three-dimensional perception as they are in a predator animal. They gave the uncanny sense that they could see things far beyond the pitiful spectrum allowed to humans.
+It did have wings. I know you were about to ask. They were paper thin and crammed together like folded bat-wings, the pinions pressed up against the windshield by the back of the creature that took up more space than there could possibly actually be in my small coupe. A long thin whip of a tail seemed to be curled back and forth across every remaining free surface of my car.
 
-It did have wings. I know you want to know. They were paper thin and crammed together like folded bat-wings, pressed up against the windshield by the back of the creature that took up more space than could possible actually be in my small coupe.
+And then there was the creature's cock. I didn't know what it looked like --- yet --- but it remained inside of me. I felt like I had been impaled on one of Acropolis' enormous broken columns. I know that's a bit of an exaggeration, but I don't know how else to get the sensation across to you other than to exaggerate a little.
 
-And then there was the creature's cock. It was inside me. I could
+When my eyes had met the creatures, it looked right back at me. But not with any kind of human emotion. It was only a raw, animal intelligence. The intelligence of a predator cat, or an arctic wolf. And my sense was that it was using all of its intelligence to calculate how it could completely consume me.
 
+Its claw wrapped around my neck. Not in a way that choked me --- I had no trouble breathing. More like it just found my neck a convenient handle to grab onto. But the sensation was disturbing: like my neck had been thrust into the hole through a cinder block.
 
-* Its claw wrapped around my neck. It wasn't like he was choking me, I had no trouble breathing. More like he just found my neck a convenient handle to grab onto. But the sensation was disturbing. Like my neck had been thrust into the hole through a cinder block.
+Its other claw came down to my hip and closed hard on it. I could feel the sharp points digging in, and could only imagine those massive, slicing claws doing the same damage to the soft flesh of my thigh that he had done to the foam of the driver's-side seat.
 
-* Its other claw came down to my hip and closed hard on it. I could feel the sharp points digging in, and could only imagine his claws doing the same damage to the soft flesh of my thigh that he had done to the foam of the driver's-side seat.
+It had briefly paused for a moment when I had looked back at it. But not it returned to the business of fucking me. I felt completely helpless. I wrapped my thin arms around the car seat and pressed my head against the headrest, trying to glean what little support I could from the familiar feel of my little car in front of me while I was being tortured by some surreal fairy-tale monster from behind.
 
-* Another weird thing was I could hear him snapping his teeth. Seriously! Like a dog snapping angrily in the air at someone he hates. And the teeth-snap had a cavernous echo to it as well.
+The beast blew a long smoking breath of hot air across me. It could hear it snapping its teeth above me, like a dog snapping angrily in the air at someone it hates. The teeth-snap sound had a cavernous echo quality, I assume from a resonance in that huge head. The creature lunged forward, driving up into me and I could think of nothing but that huge stone cock breaking me apart. Something in the car seat broke from the irrepressible forward momentum, and there was a loud snap like the backbone of a small animal in the mouth of a killer backyard cat as the seat collapsed flat.
 
+The creature was over me now, consuming all the space above me as it thrust into me. I braced my little feet against the dashboard and dug my fingers into the seat cushion. I buried my face in the headrest. I felt like I was trapped in the last remaining void of a collapsed building. Or like a miner who had belly-crawled into the narrowest of gaps 1000 feet underground. It felt like indescribable massiveness and weight above me. It felt like being fucked by the Earth itself.
 
-* I could hear a sound coming from his throat. Something like "Keeeeshennshra." I realized it was my name. A long and curling serpent tongue unfurled from its mouth, and whipped down and licked my pussy. Its touch was so hot it burned me. I was afraid it would leave welts. I couldn't help but let out a scream. "Keeeeshennshra. Your cunt tastes so good!"
+I could imagine that from the outside my little red car must look like it was being destroyed from the inside. It's springs totally compressed, the whole body shaking up and down. Why didn't someone tap on the window to check on me? I suppose if anyone even noticed the unusual stance and motion of my car in the dark back part of the drive-in, they would simply feel somewhat jealous and not want to intrude.
 
-* He was over me, and I felt like I was trapped in a collapsed building, or a miner who had belly-crawled into the narrowest void 1000 feet underground. It felt like undescribable massiveness. It felt like being fucked by the Earth itself.
+I don't know how long this lasted (less than the running time of *Mulan*, I know that for a fact). But eventually it seemed to grow tired of being so cramped and unable to do what it really wanted to do to me. A stiffness had come into its thrusts --- I mean in the way it was moving: less serpentine and reptilian flow and more like the abortive energy-saving movements of a tired mammal.
 
-* I never talked to Lucas about the event. After we got back to his place, I left the next day, and we drifted apart after that. It was pretty easy to do, being a long-distance thing anyway.
+It pulled me off its cock. I mean it like that: it grabbed me and wholly lifted me off its cock like I weigh no more than a small stuffed animal toy. It placed me into the back seat of the car, and I wiggled around in the tight space remaining to confront the monster face-on.
 
-* I never did see *Mulan*.
+And now I could see its cock: a massive thing that indeed seemed to be made of stone rough and hard and cracked in places. Unlike Lucas' cock, it was not a well-proportioned thing. It looked massive even in relation to the huge body of the dragon-thing that was filling my car. Though maybe that was my own forced perspective. It thrust forward running in a long hard column towards me. It had a huge bulbous head that seemed to entirely circle it, and a channel that looked like it had been carved into the underside. From its base hung two huge ball sacks, that looked like boulders suspended in women's nylons.
+
+It took the cock in its claw.
+
+This is when I heard a sound coming from his throat. Something like "Keeeeshennshra." I realized it was my name. 
+
+A long and curling serpent tongue unfurled from its mouth, and with electric speed whipped down between my unwittingly still-parted legs and licked my pussy. Its touch was so hot it scorched me. I was afraid it would leave welts. I couldn't help but let out a scream. 
+
+"Keeeeshennshra. Yousssrrsh cunsh tassshes shhooo goossdshh!" It said. Or at least something like that. 
+
+During all those phone sex sessions, when we couldn't be together physically, Lucas often mentioned how much he wanted to taste my pussy. I remembered that it was one thing in particular that he craved. Hearing the words expressing this through the susurrus of his hot exhale made me realize that my Lucas was still in there. I wasn't confronted with some raw terrifying animal monster, but Lucas in a different form.
+
+This realization took the sharpest edge off my fear. I looked up into his eyes, and my tired body became slightly less tense. I could see his slitted eyes wandering over my body, and I thought perhaps he was seeing me as nobody ever had before. 
+
+His giant stone cock floated in the air only a few inches above me and he was now stroking it madly as he looked at my naked, wet, exhausted body. I put my hand out and touched the bulbous tip of his cock and it was cold under my fingers.
+
+It was at that moment he came. His head arched back and a roar that can't be imagined because it could only emanate from a creature that never existed before escaped from between his teeth.
+
+The cramped and curved neck suddenly whipped back and forth dramatically. I could see every stone muscle in his body tense up --- which was something quite amazing to see: like watching an extremely realistic statue suddenly come to vivid life. His balls retracted upwards violently, and I could see fluid pumping along the channel cut in his dick.
+
+Cum flowed out of him. It didn't shoot out, like it typically does from men, it poured out in a slow molten-rock, lava kind of way. Though it was bright white and nearly glowed in the cartoon light. There were massive amounts of it, a viscous and sticky slow-moving stream pouring forth. The stuff just kept flowing, like a rent in the Earth from which the hot liquid of the center bubbled out. 
+
+It flowed off the end of the massive cock and poured down on my body. It was extremely hot --- like the temperature of the hottest shower you've ever taken --- and smoke or steam rose from it. It covered my tits like icing on a cake, and flowed down my belly burning me. It flowed over me and covered my like a blanket, pouring down between my legs, and scalding my pussy. I could feel it pooling under my ass and legs.
+
+I closed my eyes and let the sensation _literally_ wash over me.
+
+When I opened them again, Lucas was no longer a monster. He sat there in front of me, holding his cock in his hand, looking entirely dessicated from effort. Seeing his body so small and pale relative to what he had been moments before made me feel pity for him. He seemed so frail and weak.
+
+I know what you are going to say: you'll say I imagined the whole thing. This was my mind playing tricks on me, or maybe you'll just assume I was on acid. Listen: I would tell you if that were the case. And if I imagined it, how do you explain my broken car seat? The deeply-gouged foam of the driver's-side seat? Or the fact that the whole drive back to his house I sat in a cooling, tacky puddle from the buckets of cum?
+
+I never really talked to Lucas about the event. After we got back to his place, I left the next day, and we drifted apart after that --- the way long-distance relationships often do even without a calamitous event to rip it apart.
+
+I never did see that *Mulan* movie.
 
 
