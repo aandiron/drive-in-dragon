@@ -1,5 +1,5 @@
 The-Great-Stone-Dragon_full-draft.md
-Last modified: Sat Sep 25, 2021  03:31PM
+Last modified: Sat Sep 25, 2021  02:28PM
 
 
 # The Great Stone Dragon
@@ -46,7 +46,7 @@ The conversation was all in good humor, but it still put a little note of sour t
 
 By the time we were on our way, we had settled back into the dazed-crush state that our nightly phone calls had built up. It was hard not to feel romantic. I let Lucas drive my car, and we wound along narrow back country roads that would occasionally roll up to the top of hills from which we could see the liquid orange blob of the sun melting off on the Western horizon.
 
-I kinda couldn't take my eyes off him. Even though if I were being honest he dressed just like all the other art nerds he hung around with. All in black, but not even tasteful black --- cheap oversized black tshirts, black pants, black combat boots. But this one was _my_ art nerd. I liked his shaved head, his paleness from rarely going out before dark, his young intensity.
+I kinda couldn't take my eyes off him. Even though if I were being honest he dressed just like all the other art nerds he hung around with. All in black, but not even tasteful black --- cheap oversized black t-shirts, black pants, black combat boots. But this one was _my_ art nerd. I liked his shaved head, his paleness from rarely going out before dark, his young intensity.
 
 He was trying to keep his eyes on the road, but he caught me staring at him. He gave me half a side-ways grin, and I leaned over and put my head on his shoulder. I had a smile on my face that I had no control over. I just kept grinning. I smiled as I sucked his ear. And I continued to smile as I undid his pants and slid my warm little hand down his boxers and took his cock in my hand. He was hard. Extremely hard. In that way that only 19 year old boys could be really. So hard that is gave not at all to the pressure of my fingers. It wasn't throbbing hard, it was just *hard* --- like a wooden dowel or something. There really wasn't anything I could even do with it. So I just held him in my hand while I whispered in his ear that he had better continue to concentrate on driving.
 
@@ -90,7 +90,7 @@ I totally had him in my clutches then. I could have made him cum in a second if 
 
 His hands let go of the steering wheel and made their way back up under my skirt. I could feel his fingers slip under the lower curve of my ass, and apply the white-knuckle grip there instead. I have to tell you: I just fucking love it when a man does that. A guy does that, and I get immediately turned on --- even if it's in public and just a quick squeeze --- but when it happens while I'm in the middle of getting fucked, it makes me desperate to get my cunt pounded!
 
-I leaned back a bit, and slid my hands up under his tshirt, lifting it up and feeling his chest under my fingers at the same time. I pulled my halter top up, and pressed my small brown breasts against the naked skin of his chest. (I hadn't bothered with a bra of course.) 
+I leaned back a bit, and slid my hands up under his t-shirt, lifting it up and feeling his chest under my fingers at the same time. I pulled my halter top up, and pressed my small brown breasts against the naked skin of his chest. (I hadn't bothered with a bra of course.) 
 
 I rubbed my body against his as I continued my rolling-hip fucking, his cock thrusting into me with each grind, his abs grinding back and forth against my clit. He kept his hands under my ass, as if he thought he was helping with the motion, but in reality, I was doing all the work.
 
@@ -108,7 +108,7 @@ From all the phone sex we had had, Lucas knew the explicit details of exactly wh
 
 It was when he was fucking me from behind like this that the thing I wanted to tell you about happened. 
 
-As I said, I was holding on with my eyes closed. So I didn't _see_ anything at first. Rather, I _felt_ it: I noticed a change in how his cock felt inside me. I said before, Lucas' cock was _well-prorportioned_ --- and by that I don't mean big --- just "a good size." But at this moment when he was fucking me from behind, I suddenly had the sensation that his cock was growing larger. Not like just a little throb, but it actually seemed to _grow_. It swelled in my pussy, in both length and girth, and it just got larger and larger. It felt like it was going to split me apart! I began to fear he might actually hurt me. What if a man is so big it does permanent damage? Can such a thing happen? I wasn't sure, but these kinds of questions sort of started floating abstractly through my mind.
+As I said, I was holding on with my eyes closed. So I didn't _see_ anything at first. Rather, I _felt_ it: I noticed a change in how his cock felt inside me. I said before, Lucas' cock was _well-proportioned_ --- and by that I don't mean big --- just "a good size." But at this moment when he was fucking me from behind, I suddenly had the sensation that his cock was growing larger. Not like just a little throb, but it actually seemed to _grow_. It swelled in my pussy, in both length and girth, and it just got larger and larger. It felt like it was going to split me apart! I began to fear he might actually hurt me. What if a man is so big it does permanent damage? Can such a thing happen? I wasn't sure, but these kinds of questions sort of started floating abstractly through my mind.
 
 His cock wasn't just getting bigger, it was getting _harder_ too. And I don't mean _stiffer_ I mean harder --- like his cock was becoming a solid object, rather than a meaty piece of flesh (no matter how tumescent he had previously been).
 
@@ -172,7 +172,7 @@ It flowed off the end of the massive cock and poured down on my body. It was ext
 
 I closed my eyes and let the sensation _literally_ wash over me.
 
-When I opened them again, Lucas was no longer a monster. He sat there in front of me, holding his cock in his hand, looking entirely dessicated from effort. Seeing his body so small and pale relative to what he had been moments before made me feel pity for him. He seemed so frail and weak.
+When I opened them again, Lucas was no longer a monster. He sat there in front of me, holding his cock in his hand, looking entirely desiccated from effort. Seeing his body so small and pale relative to what he had been moments before made me feel pity for him. He seemed so frail and weak.
 
 I know what you are going to say: you'll say I imagined the whole thing. This was my mind playing tricks on me, or maybe you'll just assume I was on acid or mushrooms or some other drug. Listen: I would tell you if that were the case. I have no reason to lie or hide anything about this anymore. And if I imagined it, how do you explain my broken car seat? The deeply-gouged foam of the driver's-side seat? The still-oozing painful gashes on my hip? Or the fact that the whole drive back to his house I sat in a cooling, tacky puddle from the buckets of cum?
 

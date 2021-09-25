@@ -1,5 +1,5 @@
 README.md
-Last modified: Sat Sep 25, 2021  03:35PM
+Last modified: Sat Sep 25, 2021  02:20PM
 
 # The Great Stone Dragon
 * By A. Andiron
@@ -14,6 +14,11 @@ Last modified: Sat Sep 25, 2021  03:35PM
 
 ## Compilation notes:
 * Use pandoc to compile .md into whatever format you like.
+
+## Photo credit:
+* Originally published: https://www.independent.co.uk/news/uk/home-news/roman-carved-penis-catterick-yorkshire-b1885815.html
+	* (Northern Archaeological Associates) 
+	* Modified in Gimp.
 
 ## License:
 * Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
