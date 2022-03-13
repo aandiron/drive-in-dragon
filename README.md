@@ -1,15 +1,13 @@
 README.md
-Last modified: Sat Sep 25, 2021  03:10PM
+Last modified: Sun Mar 13, 2022  02:53PM
 
 # The Great Stone Dragon
 * By A. Andiron
 
 ## How to read it:
 * Available to read on Literotica:
-	* 
-* And on Medium:
-	* 
-* Or, compile from this source code using latex.
+	* https://www.literotica.com/s/the-great-stone-dragon
+* Or, compile from this source code using pandoc.
 	* (Or just read the markdown, available in source.) 
 
 ## Compilation notes:
